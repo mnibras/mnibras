@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **mohamednibras111@gmail.com**
 
-- 📄 Know about my experiences [View My Resume](<(https://drive.google.com/file/d/1BP4VzCtKel9LVncKnD1esO9uxQQuHT0Y/view?usp=drive_link)>)
+- 📄 Know about my experiences [View My Resume](https://drive.google.com/file/d/1BP4VzCtKel9LVncKnD1esO9uxQQuHT0Y/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
